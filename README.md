@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... THermal Engineering, Numerical Methods, Finite Difference Method, Inverse Heat Transfer Problems
 - 🌱 I’m currently learning ... M.Sc in Aerospace Engineering
 - 💞️ I’m looking to collaborate on ... nothing yet.
-- 📫 How to reach me ... qrik418@outlook.com
+- 📫 How to reach me ... qrik418@gmail.com
 - 😄 Pronouns: ... Mr., he
 - ⚡ Fun fact: ... I am still looking for my fun facts.
 
